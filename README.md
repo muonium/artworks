@@ -1,1 +1,1 @@
-Folders 'byMuonium' means that the content in them have been made by us :)
+Folder names with 'byMuonium' mean that the content in them has been made by us :)
